@@ -1,4 +1,4 @@
-## Hi there, I'm  Hanzla 👋
+## Hi there, I'm  Hanzla Waheed 👋
 
 <div align="center">
 <p align="center">Let's connect!</p>
